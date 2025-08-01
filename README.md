@@ -1,10 +1,8 @@
 # O1.
-─⠀⠀⠀icon⠀by⠀my⠀bbffl⠀gabriel⠀!!!
+─⠀⠀⠀icon⠀by⠀my⠀bbffl⠀gabriel
 
 
-<br>you⠀may⠀be⠀wondering⠀who⠀that⠀guy⠀in⠀my⠀pfp⠀is⠀. . .
-
-that⠀is⠀tesco⠀!!⠀me ,⠀a⠀part⠀in⠀a⠀system⠀and⠀our⠀persona .
+this⠀is⠀tesco⠀!!⠀me ,⠀a⠀part⠀in⠀a⠀system⠀and⠀our⠀persona .
 <br>aswell⠀as⠀a⠀self⠀insert⠀i⠀use⠀for⠀a⠀lot⠀of⠀media⠀i⠀enjoy
 
 i⠀was⠀fully⠀formed⠀when⠀we⠀got⠀super⠀into⠀mouthwashing ,⠀eventually
